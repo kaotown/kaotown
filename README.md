@@ -8,3 +8,7 @@
 </br>[bunchoffriends](https://github.com/bunchoffriends) is anthony po's biggest fan! (＾▽＾)
 </br>
 </br>[chick-habit](https://github.com/chick-habit) is murdoc niccals' biggest fan! ⎛⎝( ` ᢍ ´ )⎠⎞
+</br>
+</br>[copperbottoms](https://github.com/copperbottoms) is rodney copperbottom's biggest fan! (•ᴗ•,, )
+</br>
+</br>[yellowdeltarune](https://github.com/yellowdeltarune) is yellow (deltarune)'s biggest fan! (ﾟ皿ﾟ)ｒ┏┳－*
