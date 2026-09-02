@@ -6,3 +6,5 @@
 </br> <sub> all for fun! dont take this too seriously, thanks!</a>
 
 </br>[bunchoffriends](https://github.com/bunchoffriends) is anthony po's biggest fan! (＾▽＾)
+</br>
+</br>[chick-habit](https://github.com/chick-habit) is murdoc niccals' biggest fan! ⎛⎝( ` ᢍ ´ )⎠⎞
