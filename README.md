@@ -19,6 +19,10 @@
 </br>
 </br>[CosmoThePastryy](https://github.com/CosmoThePastryy) is cosmo's biggest fan! (˵◝ ⩊ ◜˵マ  ᵎᵎ
 </br>
+</br>[DETERMlNATION](https://github.com/DETERMlNATION) is genji shimada's biggest fan! ૮(ᓀ ﻌ ᓀ)ა
+</br>
+</br>[FeelThatDread](https://github.com/FeelThatDread) is lord x's biggest fan! ૮ • ﻌ - ა
+</br>
 </br>[Gatita-here](https://github.com/Gatita-here) is grox's biggest fan! (｡•̀ᴗ-)✧
 </br>
 </br>[heart-wing](https://github.com/heart-wing) is piri's biggest fan! ⁽⁽ଘ( ˊᵕˋ )ଓ⁾⁾
