@@ -21,6 +21,8 @@
 </br>
 </br>[mutiIator](https://github.com/mutiIator) is elysia's biggest fan! (,; ⩌ ;,)
 </br>
+</br>[neverwanted2dance](https://github.com/neverwanted2dance) is vee's biggest fan! (˶ˆᗜˆ˵)
+</br>
 </br>[NostalgicSplatterlingSys](https://github.com/NostalgicSplatterlingSys) is motm cuphead's biggest fan! (◡◕⏖◕)ᑐ🝐 ⠁⭒*.✩
 </br>
 </br>[planetlordd](https://github.com/planetlordd) is planetlord's biggest fan! (≧ ᆺ ≦)
