@@ -21,9 +21,13 @@
 </br>
 </br>[mutiIator](https://github.com/mutiIator) is elysia's biggest fan! (,; ⩌ ;,)
 </br>
+</br>[NostalgicSplatterlingSys](https://github.com/NostalgicSplatterlingSys) is motm cuphead's biggest fan! (◡◕⏖◕)ᑐ🝐 ⠁⭒*.✩
+</br>
 </br>[planetlordd](https://github.com/planetlordd) is planetlord's biggest fan! (≧ ᆺ ≦)
 </br>
 </br>[rollordie](https://github.com/rollordie) is chance's biggest fan! (✿ᵔ‿ᵔ)
+</br>
+</br>[sw33tsug4rcookie](https://github.com/sw33tsug4rcookie) is ginger's biggest fan! ૮ ˶- ᵕ ᵔ˶ ა
 </br>
 </br>[travisrapidd](https://github.com/travisrapidd) is andrew's biggest fan! ( ;^ p ^;)
 </br>
