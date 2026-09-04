@@ -9,6 +9,8 @@
 </br>
 </br>[bigguykoi](https://github.com/bigguykoi) is hanzo shimada's biggest fan! ( ꐦ◜ᴗ◝)
 </br>
+</br>[Blossoming-Truth](https://github.com/Blossoming-Truth) is monika's biggest fan! ( ◜‿◝ )♡
+</br>
 </br>[bunchoffriends](https://github.com/bunchoffriends) is anthony po's biggest fan! (＾▽＾)
 </br>
 </br>[chick-habit](https://github.com/chick-habit) is murdoc niccals' biggest fan! ⎛⎝( ^ ᢍ ^ )⎠⎞
@@ -21,11 +23,15 @@
 </br>
 </br>[DETERMlNATION](https://github.com/DETERMlNATION) is genji shimada's biggest fan! ૮(ᓀ ﻌ ᓀ)ა
 </br>
+</br>[doomspiredefense](https://github.com/doomspiredefense) is fabulous deity's biggest fan! (ﾉ'ヮ')ﾉ*: ･ﾟ
+</br>
 </br>[FeelThatDread](https://github.com/FeelThatDread) is lord x's biggest fan! ૮ • ﻌ - ა
 </br>
 </br>[Gatita-here](https://github.com/Gatita-here) is grox's biggest fan! (｡•̀ᴗ-)✧
 </br>
 </br>[heart-wing](https://github.com/heart-wing) is piri's biggest fan! ⁽⁽ଘ( ˊᵕˋ )ଓ⁾⁾
+</br>
+</br>[Ilove-him](https://github.com/Ilove-him) is mapicc's biggest fan! ( ˃' ⩌ '˂ )
 </br>
 </br>[mentally-stable](https://github.com/mentally-stable) loves my reality!! by ilymeow! ◑﹏◐
 </br> 
@@ -47,9 +53,13 @@
 </br>
 </br>[rollordie](https://github.com/rollordie) is chance's biggest fan! (✿ᵔ‿ᵔ)
 </br>
+</br>[SONNELLINOENTHUSIAST](https://github.com/SONNELLINOENTHUSIAST) is mafioso's biggest fan! ⚞(..◜ᴗ◝..)⚟
+</br>
 </br>[sorrowfulpredict](https://github.com/sorrowfulpredict) is 1x1x1x1's biggest fan! (--✧
 </br>
 </br>[sw33tsug4rcookie](https://github.com/sw33tsug4rcookie) is ginger's biggest fan! ૮ ˶- ᵕ ᵔ˶ ა
+</br>
+</br>[terrificorice](https://github.com/terrificorice) is brusha's biggest fan! ٩(๑'^'๑)۶
 </br>
 </br>[travisrapidd](https://github.com/travisrapidd) is andrew's biggest fan! ( ;^ p ^;)
 </br>
