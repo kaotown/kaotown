@@ -21,6 +21,8 @@
 </br>
 </br>[CosmoThePastryy](https://github.com/CosmoThePastryy) is cosmo's biggest fan! (˵◝ ⩊ ◜˵マ  ᵎᵎ
 </br>
+</br>[D0tt1e](https://github.com/D0tt1e) is cocoa's biggest fan! (๑•̀ㅂ•́)و✧
+</br>
 </br>[DETERMlNATION](https://github.com/DETERMlNATION) is genji shimada's biggest fan! ૮(ᓀ ﻌ ᓀ)ა
 </br>
 </br>[doomspiredefense](https://github.com/doomspiredefense) is fabulous deity's biggest fan! (ﾉ'ヮ')ﾉ*: ･ﾟ
@@ -34,6 +36,10 @@
 </br>[heart-wing](https://github.com/heart-wing) is piri's biggest fan! ⁽⁽ଘ( ˊᵕˋ )ଓ⁾⁾
 </br>
 </br>[Ilove-him](https://github.com/Ilove-him) is mapicc's biggest fan! ( ˃' ⩌ '˂ )
+</br>
+</br>[JEWELRYJULIE](https://github.com/JEWELRYJULIE) is katsuki bakugou's biggest fan! (⸝⸝ᵕᴗᵕ⸝⸝)
+</br>
+</br>[mandela-net](https://github.com/mandela-net) is guest 1337's biggest fan! (о'∀'о)
 </br>
 </br>[mentally-stable](https://github.com/mentally-stable) loves my reality!! by ilymeow! ◑﹏◐
 </br> 
@@ -76,3 +82,5 @@
 </br>[Xaplastcore](https://github.com/Xaplastcore) is orion pax's biggest fan! (≧▽≦)
 </br>
 </br>[yellowdeltarune](https://github.com/yellowdeltarune) is yellow (deltarune)'s biggest fan! (ﾟ皿ﾟ)ｒ┏┳－*
+</br>
+</br>[Yoshida-zawa](https://github.com/Yoshida-zawa) is izuku midoriya's biggest fan! (⸝⸝ᵕᴗᵕ⸝⸝)
