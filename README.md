@@ -25,6 +25,8 @@
 </br>
 </br>[doomspiredefense](https://github.com/doomspiredefense) is fabulous deity's biggest fan! (ﾉ'ヮ')ﾉ*: ･ﾟ
 </br>
+</br>[DOR-fic](https://github.com/DOR-fic) is metal sonic's biggest fan! (˶ˆᗜˆ˵)
+</br>
 </br>[FeelThatDread](https://github.com/FeelThatDread) is lord x's biggest fan! ૮ • ﻌ - ა
 </br>
 </br>[Gatita-here](https://github.com/Gatita-here) is grox's biggest fan! (｡•̀ᴗ-)✧
