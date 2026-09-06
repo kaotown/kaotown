@@ -25,6 +25,8 @@
 </br>
 </br>[D0tt1e](https://github.com/D0tt1e) is cocoa's biggest fan! (๑•̀ㅂ•́)و✧
 </br>
+</br>[dearsonnet](https://github.com/dearsonnet) is black (vs imposter)'s biggest fan! (♡ˊ͈ ꒳ ˋ͈)
+</br>
 </br>[DETERMlNATION](https://github.com/DETERMlNATION) is genji shimada's biggest fan! ૮(ᓀ ﻌ ᓀ)ა
 </br>
 </br>[doomspiredefense](https://github.com/doomspiredefense) is fabulous deity's biggest fan! (ﾉ'ヮ')ﾉ*: ･ﾟ
