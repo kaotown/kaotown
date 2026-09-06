@@ -13,6 +13,8 @@
 </br>
 </br>[bunchoffriends](https://github.com/bunchoffriends) is anthony po's biggest fan! (＾▽＾)
 </br>
+</br>[call-me-ZLP](https://github.com/call-me-ZLP) is facty boys's biggest fan! (｡･ω･｡)ﾉ♡
+</br>
 </br>[chick-habit](https://github.com/chick-habit) is murdoc niccals' biggest fan! ⎛⎝( ^ ᢍ ^ )⎠⎞
 </br>
 </br>[coalcarolynne](https://github.com/coalcarolynne) is coal's biggest fan! ૮(¬`ﻌ´¬)ა
@@ -35,7 +37,13 @@
 </br>
 </br>[heart-wing](https://github.com/heart-wing) is piri's biggest fan! ⁽⁽ଘ( ˊᵕˋ )ଓ⁾⁾
 </br>
+</br>[IHASAFACE-LULZ](https://github.com/IHASAFACE-LULZ) is medkit's biggest fan! ( = ⩊ = )
+</br>
 </br>[Ilove-him](https://github.com/Ilove-him) is mapicc's biggest fan! ( ˃' ⩌ '˂ )
+</br>
+</br>[itrap-2245](https://github.com/itrap-2245) is itrapped's biggest fan! ૮ ˶ᵔ ᵕ ᵔ˶ ა
+</br>
+</br>[jeverus](https://github.com/jeverus) is slasher's biggest fan! (˶˃ᆺ˂˶)
 </br>
 </br>[JEWELRYJULIE](https://github.com/JEWELRYJULIE) is katsuki bakugou's biggest fan! (⸝⸝ᵕᴗᵕ⸝⸝)
 </br>
