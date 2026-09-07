@@ -64,6 +64,8 @@
 </br>
 </br>[K1R5MM5N](https://github.com/K1R5MM5N) is caitlyn kiramman's biggest fan! (˶˃ᆺ˂˶)
 </br>
+</br>[lovinglist](https://github.com/lovinglist) is kris dreemurr's biggest fan! ᐡ ᐧ ﻌ ᐧ ᐡ
+</br>
 </br>[MacNCheese0990](https://github.com/MacNCheese0990) is scp 035's biggest fan! ദ്ദി◝ ⩊ ◜.ᐟ
 </br>
 </br>[mandela-net](https://github.com/mandela-net) is guest 1337's biggest fan! (о'∀'о)
