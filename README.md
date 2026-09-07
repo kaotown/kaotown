@@ -3,7 +3,8 @@
 </br> duplicates are allowed but not recommended (. ❛ ᴗ ❛.) last upd: sep 5th 2026
 </br> ![](https://files.catbox.moe/138sbg.png)
 </br> ![](https://komarev.com/ghpvc/?username=kaotown&color=000000&style=flat-square&label=(^o^))
-</br> <sub> all for fun! also, approved messages means yours has been added and your kaomoji may be edited slightly because it messes with gh formatting, so sorry</a>
+</br> <sub> problematic pieces of media include the following: hazbin & helluva, dandy's world, pressure, and hoyoverse</a>
+</br> <sub> all for fun! your kaomoji may be edited slightly because it messes with gh formatting, so sorry</a>
 
 </br>[Blame-John](https://github.com/Blame-John) is brighteyes' biggest fan! ฅ₍^•⩊ •マⳊ
 </br>
@@ -17,13 +18,13 @@
 </br>
 </br>[chick-habit](https://github.com/chick-habit) is murdoc niccals' biggest fan! ⎛⎝( ^ ᢍ ^ )⎠⎞
 </br>
-</br>[coalcarolynne](https://github.com/coalcarolynne) is coal's biggest fan! ૮(¬`ﻌ´¬)ა
+</br>[coalcarolynne](https://github.com/coalcarolynne)! ૮(¬`ﻌ´¬)ა
 </br>
 </br>[copperbottoms](https://github.com/copperbottoms) is rodney copperbottom's biggest fan! (•ᴗ•,, )
 </br>
-</br>[CosmoThePastryy](https://github.com/CosmoThePastryy) is cosmo's biggest fan! (˵◝ ⩊ ◜˵マ  ᵎᵎ
+</br>[CosmoThePastryy](https://github.com/CosmoThePastryy)! (˵◝ ⩊ ◜˵マ  ᵎᵎ
 </br>
-</br>[D0tt1e](https://github.com/D0tt1e) is cocoa's biggest fan! (๑•̀ㅂ•́)و✧
+</br>[D0tt1e](https://github.com/D0tt1e)! (๑•̀ㅂ•́)و✧
 </br>
 </br>[dearsonnet](https://github.com/dearsonnet) is black (vs imposter)'s biggest fan! (♡ˊ͈ ꒳ ˋ͈)
 </br>
@@ -53,13 +54,13 @@
 </br>
 </br>[mentally-stable](https://github.com/mentally-stable) loves my reality!! by ilymeow! ◑﹏◐
 </br> 
-</br>[MrNovalite](https://github.com/MrNovalite) is astro's biggest fan! 𐔌՞-  . -՞𐦯 ᶻ𝗓𐰁
+</br>[MrNovalite](https://github.com/MrNovalite)! 𐔌՞-  . -՞𐦯 ᶻ𝗓𐰁
 </br>
-</br>[MsCarolynne](https://github.com/MsCarolynne) is bobette's biggest fan! ₍₍⚞(..◜ᴗ◝..)⚟⁾⁾
+</br>[MsCarolynne](https://github.com/MsCarolynne)! ₍₍⚞(..◜ᴗ◝..)⚟⁾⁾
 </br>
-</br>[mutiIator](https://github.com/mutiIator) is elysia's biggest fan! (,; ⩌ ;,)
+</br>[mutiIator](https://github.com/mutiIator)! (,; ⩌ ;,)
 </br>
-</br>[neverwanted2dance](https://github.com/neverwanted2dance) is vee's biggest fan! (˶ˆᗜˆ˵)
+</br>[neverwanted2dance](https://github.com/neverwanted2dance)! (˶ˆᗜˆ˵)
 </br>
 </br>[NostalgicSplatterlingSys](https://github.com/NostalgicSplatterlingSys) is motm cuphead's biggest fan! (◡◕⏖◕)ᑐ🝐 ⠁⭒*.✩
 </br>
@@ -75,9 +76,9 @@
 </br>
 </br>[sorrowfulpredict](https://github.com/sorrowfulpredict) is 1x1x1x1's biggest fan! (--✧
 </br>
-</br>[sw33tsug4rcookie](https://github.com/sw33tsug4rcookie) is ginger's biggest fan! ૮ ˶- ᵕ ᵔ˶ ა
+</br>[sw33tsug4rcookie](https://github.com/sw33tsug4rcookie)! ૮ ˶- ᵕ ᵔ˶ ა
 </br>
-</br>[terrificorice](https://github.com/terrificorice) is brusha's biggest fan! ٩(๑'^'๑)۶
+</br>[terrificorice](https://github.com/terrificorice)! ٩(๑'^'๑)۶
 </br>
 </br>[travisrapidd](https://github.com/travisrapidd) is andrew's biggest fan! ( ;^ p ^;)
 </br>
