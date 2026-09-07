@@ -1,6 +1,6 @@
 “(ノ _ <,, ) wowie!! i can't believe you found me! welcome to kaotown
 </br> [nominations](https://kaotown.atabook.org) && [reports](https://rochas313.atabook.org) (✧ω✧) [logs](https://rentry.co/tranq)
-</br> duplicates are allowed but not recommended (. ❛ ᴗ ❛.) last upd: sep 5th 2026
+</br> duplicates are allowed but not recommended (. ❛ ᴗ ❛.) last upd: sep 6th 2026
 </br> ![](https://files.catbox.moe/138sbg.png)
 </br> ![](https://komarev.com/ghpvc/?username=kaotown&color=000000&style=flat-square&label=(^o^))
 </br> <sub> problematic pieces of media include the following: hazbin & helluva, dandy's world, pressure, and hoyoverse</a>
