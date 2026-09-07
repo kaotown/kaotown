@@ -16,6 +16,8 @@
 </br>
 </br>[call-me-ZLP](https://github.com/call-me-ZLP) is facty boys's biggest fan! (｡･ω･｡)ﾉ♡
 </br>
+</br>[Chemicalshot](https://github.com/Chemicalshot) is spokeishere's biggest fan! (>_<)
+</br>
 </br>[chick-habit](https://github.com/chick-habit) is murdoc niccals' biggest fan! ⎛⎝( ^ ᢍ ^ )⎠⎞
 </br>
 </br>[coalcarolynne](https://github.com/coalcarolynne)! ૮(¬`ﻌ´¬)ა
@@ -30,6 +32,8 @@
 </br>
 </br>[DETERMlNATION](https://github.com/DETERMlNATION) is genji shimada's biggest fan! ૮(ᓀ ﻌ ᓀ)ა
 </br>
+</br>[disorderlyfashion](https://github.com/disorderlyfashion)! ฅ^•ﻌ•^ฅ
+</br>
 </br>[doomspiredefense](https://github.com/doomspiredefense) is fabulous deity's biggest fan! (ﾉ'ヮ')ﾉ*: ･ﾟ
 </br>
 </br>[DOR-fic](https://github.com/DOR-fic) is metal sonic's biggest fan! (˶ˆᗜˆ˵)
@@ -37,6 +41,10 @@
 </br>[FeelThatDread](https://github.com/FeelThatDread) is lord x's biggest fan! ૮ • ﻌ - ა
 </br>
 </br>[Gatita-here](https://github.com/Gatita-here) is grox's biggest fan! (｡•̀ᴗ-)✧
+</br>
+</br>[H0RR0RF4RT](https://github.com/H0RR0RF4RT) is martian (fact attack adventures)'s biggest fan! (◣_◢)
+</br>
+</br>[Heart0fGold](https://github.com/Heart0fGold) is karl (guts and blackpowder)'s biggest fan! ꉂ(˵˃ ᗜ ˂˵)
 </br>
 </br>[heart-wing](https://github.com/heart-wing) is piri's biggest fan! ⁽⁽ଘ( ˊᵕˋ )ଓ⁾⁾
 </br>
@@ -50,11 +58,13 @@
 </br>
 </br>[JEWELRYJULIE](https://github.com/JEWELRYJULIE) is katsuki bakugou's biggest fan! (⸝⸝ᵕᴗᵕ⸝⸝)
 </br>
+</br>[K1R5MM5N](https://github.com/K1R5MM5N) is caitlyn kiramman's biggest fan! (˶˃ᆺ˂˶)
+</br>
 </br>[mandela-net](https://github.com/mandela-net) is guest 1337's biggest fan! (о'∀'о)
 </br>
 </br>[mentally-stable](https://github.com/mentally-stable) loves my reality!! by ilymeow! ◑﹏◐
 </br> 
-</br>[MrNovalite](https://github.com/MrNovalite)! 𐔌՞-  . -՞𐦯 ᶻ𝗓𐰁
+</br>[MrNovalite](https://github.com/MrNovalite) is elliot (waapp)'s biggest fan! 𐔌՞-  . -՞𐦯 ᶻ𝗓𐰁
 </br>
 </br>[MsCarolynne](https://github.com/MsCarolynne)! ₍₍⚞(..◜ᴗ◝..)⚟⁾⁾
 </br>
