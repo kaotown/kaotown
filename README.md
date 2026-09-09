@@ -6,6 +6,8 @@
 </br> <sub> problematic pieces of media include the following: hazbin & helluva, dandy's world, pressure, and hoyoverse</a>
 </br> <sub> all for fun! your kaomoji may be edited slightly because it messes with gh formatting, so sorry</a>
 
+</br>[777gamblr](https://github.com/777gamblr) is barry (guts and blackpowder)'s biggest fan! (°ロ°) !
+</br>
 </br>[Blame-John](https://github.com/Blame-John) is brighteyes' biggest fan! ฅ₍^•⩊ •マⳊ
 </br>
 </br>[bigguykoi](https://github.com/bigguykoi) is hanzo shimada's biggest fan! ( ꐦ◜ᴗ◝)
@@ -15,6 +17,8 @@
 </br>[bunchoffriends](https://github.com/bunchoffriends) is anthony po's biggest fan! (＾▽＾)
 </br>
 </br>[call-me-ZLP](https://github.com/call-me-ZLP) is facty boys's biggest fan! (｡･ω･｡)ﾉ♡
+</br>
+</br>hi there [Cannibalsobsession](https://github.com/Cannibalsobsession)! ᨳ𐔌՞҂ ˕ ֊՞𐦯ᜊ
 </br>
 </br>[cashreggister](https://github.com/cashreggister) is goomy's biggest fan! ( ◡̀_◡́)ᕤ
 </br>
@@ -32,9 +36,11 @@
 </br>
 </br>[dearsonnet](https://github.com/dearsonnet) is black (vs imposter)'s biggest fan! (♡ˊ͈ ꒳ ˋ͈)
 </br>
-</br>[DETERMlNATION](https://github.com/DETERMlNATION) is genji shimada's biggest fan! ૮(ᓀ ﻌ ᓀ)ა
+</br>[decayingcrow](https://github.com/decayingcrow) is jadesprite's biggest fan! ꒰ᐢ｡╯ᴥ╰｡ᐢ꒱
 </br>
-</br>hi there [disorderlyfashion](https://github.com/disorderlyfashion)! ฅ^•ﻌ•^ฅ
+</br>[DETERMlNATION](https://github.com/DETERMlNATION) is frisk's biggest fan! ૮(ᓀ ﻌ ᓀ)ა
+</br>
+</br>[disorderlyfashion](https://github.com/disorderlyfashion) is squirrelflight's biggest fan! ฅ^•ﻌ•^ฅ
 </br>
 </br>[doomspiredefense](https://github.com/doomspiredefense) is fabulous deity's biggest fan! (ﾉ'ヮ')ﾉ*: ･ﾟ
 </br>
@@ -46,7 +52,11 @@
 </br>
 </br>[Gatita-here](https://github.com/Gatita-here) is grox's biggest fan! (｡•̀ᴗ-)✧
 </br>
+</br>[getjinx3d](https://github.com/getjinx3d) is jinx's biggest fan! ₤ò益óꀣ
+</br>
 </br>[H0RR0RF4RT](https://github.com/H0RR0RF4RT) is martian (fact attack adventures)'s biggest fan! (◣_◢)
+</br>
+</br>[Ham-milton](https://github.com/Ham-milton) is scared french soldier (guts and blackpowder)'s biggest fan! ('ᗜ')
 </br>
 </br>[Heart0fGold](https://github.com/Heart0fGold) is karl (guts and blackpowder)'s biggest fan! ꉂ(˵˃ ᗜ ˂˵)
 </br>
@@ -57,6 +67,8 @@
 </br>[Ilove-him](https://github.com/Ilove-him) is mapicc's biggest fan! ( ˃' ⩌ '˂ )
 </br>
 </br>[itrap-2245](https://github.com/itrap-2245) is itrapped's biggest fan! ૮ ˶ᵔ ᵕ ᵔ˶ ა
+</br>
+</br>[Itrappedfan](https://github.com/Itrappedfan) is froggydude's biggest fan! ( ◜‿◝ )♡
 </br>
 </br>[jeverus](https://github.com/jeverus) is slasher's biggest fan! (˶˃ᆺ˂˶)
 </br>
@@ -82,6 +94,8 @@
 </br>
 </br>[NostalgicSplatterlingSys](https://github.com/NostalgicSplatterlingSys) is motm cuphead's biggest fan! (◡◕⏖◕)ᑐ🝐 ⠁⭒*.✩
 </br>
+</br>[perishallmortals](https://github.com/perishallmortals) is noelle holiday's biggest fan! ( ᴗ͈ˬᴗ͈)ഒ
+</br>
 </br>[planetlordd](https://github.com/planetlordd) is planetlord's biggest fan! (≧ ᆺ ≦)
 </br>
 </br>[poisonedritual](https://github.com/poisonedritual) is two time's biggest fan! (¬'‸'¬)
@@ -91,6 +105,8 @@
 </br>[pupfies](https://github.com/pupfies) is wifies' biggest fan! (˶◠‿◕˵)
 </br>
 </br>[qnakin](https://github.com/qnakin) is anakin skywalker's biggest fan! (ᵕ— ᴗ —)
+</br>
+</br>[raayyz](https://github.com/raayyz) is ink sans' biggest fan! ,,^w^,,
 </br>
 </br>[rollordie](https://github.com/rollordie) is chance's biggest fan! (✿ᵔ‿ᵔ)
 </br>
