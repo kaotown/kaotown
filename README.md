@@ -22,6 +22,8 @@
 </br>
 </br>[cashreggister](https://github.com/cashreggister) is goomy's biggest fan! ( ◡̀_◡́)ᕤ
 </br>
+</br>[centaursTesticIe](https://github.com/centaursTesticIe) is equius zahhak's biggest fan!
+</br>
 </br>[Chemicalshot](https://github.com/Chemicalshot) is spokeishere's biggest fan! (>_<)
 </br>
 </br>[chick-habit](https://github.com/chick-habit) is murdoc niccals' biggest fan! ⎛⎝( ^ ᢍ ^ )⎠⎞
@@ -47,6 +49,8 @@
 </br>[DOR-fic](https://github.com/DOR-fic) is metal sonic's biggest fan! (˶ˆᗜˆ˵)
 </br>
 </br>[duckseatbreads](https://github.com/duckseatbreads) is john constantine's biggest fan! ᕙ(  •̀ ᗜ •́  )ᕗ
+</br>
+</br>[FlRSTFALLEN](https://github.com/FlRSTFALLEN) is chara dreemurr's biggest fan! (●'◡'●)
 </br>
 </br>[FeelThatDread](https://github.com/FeelThatDread) is lord x's biggest fan! ૮ • ﻌ - ა
 </br>
