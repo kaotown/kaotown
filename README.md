@@ -6,7 +6,11 @@
 </br> <sub> problematic pieces of media include the following: hazbin & helluva, dandy's world, pressure, and hoyoverse</a>
 </br> <sub> all for fun! your kaomoji may be edited slightly because it messes with gh formatting, so sorry</a>
 
+</br>[6odheaded](https://github.com/6odheaded) is dave strider's biggest fan! >__>
+</br>
 </br>[777gamblr](https://github.com/777gamblr) is barry (guts and blackpowder)'s biggest fan! (°ロ°) !
+</br>
+</br>[astrobarrage](https://github.com/astrobarrage) is fluixon's biggest fan! ◝(ᵔᗜᵔ)◜
 </br>
 </br>[Blame-John](https://github.com/Blame-John) is brighteyes' biggest fan! ฅ₍^•⩊ •マⳊ
 </br>
@@ -26,6 +30,8 @@
 </br>
 </br>[Chemicalshot](https://github.com/Chemicalshot) is spokeishere's biggest fan! (>_<)
 </br>
+</br>[cherryflavoredfoam](https://github.com/cherryflavoredfoam) is miguel o'hara's mbiggest fan! ᨳ𐔌՞-  _ -"՞𐦯ᜊ
+</br>
 </br>[chick-habit](https://github.com/chick-habit) is murdoc niccals' biggest fan! ⎛⎝( ^ ᢍ ^ )⎠⎞
 </br>
 </br>hi there [coalcarolynne](https://github.com/coalcarolynne)! ૮(¬`ﻌ´¬)ა
@@ -40,6 +46,8 @@
 </br>
 </br>[decayingcrow](https://github.com/decayingcrow) is jadesprite's biggest fan! ꒰ᐢ｡╯ᴥ╰｡ᐢ꒱
 </br>
+</br>[denguemon](https://github.com/denguemon) is saman's biggest fan! (๑ᵔ⤙ᵔ๑)
+</br>
 </br>[DETERMlNATION](https://github.com/DETERMlNATION) is frisk's biggest fan! ૮(ᓀ ﻌ ᓀ)ა
 </br>
 </br>[disorderlyfashion](https://github.com/disorderlyfashion) is squirrelflight's biggest fan! ฅ^•ﻌ•^ฅ
@@ -48,11 +56,19 @@
 </br>
 </br>[DOR-fic](https://github.com/DOR-fic) is metal sonic's biggest fan! (˶ˆᗜˆ˵)
 </br>
+</br>[doxdxo](https://github.com/doxdxo) is saiki kusuo's biggest fan! ૮ ྀིᴗ͈ . ᴗ͈ ྀིა
+</br>
 </br>[duckseatbreads](https://github.com/duckseatbreads) is john constantine's biggest fan! ᕙ(  •̀ ᗜ •́  )ᕗ
+</br>
+</br>[FeelThatDread](https://github.com/FeelThatDread) is lord x's biggest fan! ૮ • ﻌ - ა
+</br>
+</br>[flowerseasalt](https://github.com/flowerseasalt) is fortress maximus' biggest fan! ▼・ᴥ・▼
 </br>
 </br>[FlRSTFALLEN](https://github.com/FlRSTFALLEN) is chara dreemurr's biggest fan! (●'◡'●)
 </br>
-</br>[FeelThatDread](https://github.com/FeelThatDread) is lord x's biggest fan! ૮ • ﻌ - ა
+</br>[fragranceofhope](https://github.com/fragranceofhope) is flowery's biggest fan! ( >‿◕ ✿)
+</br>
+</br>[fukounagirl](https://github.com/fukounagirl) is stomach book's biggest fan! ( ᐡづ ᆺ◝ᐡ)
 </br>
 </br>[Gatita-here](https://github.com/Gatita-here) is grox's biggest fan! (｡•̀ᴗ-)✧
 </br>
@@ -80,6 +96,8 @@
 </br>
 </br>[K1R5MM5N](https://github.com/K1R5MM5N) is caitlyn kiramman's biggest fan! (˶˃ᆺ˂˶)
 </br>
+</br>[kiwiconiccc](https://github.com/kiwiconiccc) is august stilza's biggest fan! ᕙ(͡°‿ ͡°)ᕗ
+</br>
 </br>[lovinglist](https://github.com/lovinglist) is kris dreemurr's biggest fan! ᐡ ᐧ ﻌ ᐧ ᐡ
 </br>
 </br>[MacNCheese0990](https://github.com/MacNCheese0990) is scp 035's biggest fan! ദ്ദി◝ ⩊ ◜.ᐟ
@@ -88,15 +106,19 @@
 </br>
 </br>[mentally-stable](https://github.com/mentally-stable) loves my reality!! by ilymeow! ◑﹏◐
 </br> 
+</br>hi there [monachgrievings](https://github.com/monachgrievings)! (⸝⸝¬' ‸ '¬⸝⸝)
+</br>
 </br>[MrNovalite](https://github.com/MrNovalite) is elliot (waapp)'s biggest fan! 𐔌՞-  . -՞𐦯 ᶻ𝗓𐰁
 </br>
 </br>hi there [MsCarolynne](https://github.com/MsCarolynne)! ₍₍⚞(..◜ᴗ◝..)⚟⁾⁾
 </br>
 </br>hi there [mutiIator](https://github.com/mutiIator)! (,; ⩌ ;,)
 </br>
+</br>[nadd-nadd](https://github.com/Nadd-nadd) is sigil (nullscape)'s biggest fan! (^^)
+</br>
 </br>hi there [neverwanted2dance](https://github.com/neverwanted2dance)! (˶ˆᗜˆ˵)
 </br>
-</br>[NostalgicSplatterlingSys](https://github.com/NostalgicSplatterlingSys) is motm cuphead's biggest fan! (◡◕⏖◕)ᑐ🝐 ⠁⭒*.✩
+</br>[NostalgicSplatterlingSys](https://github.com/NostalgicSplatterlingSys) is cuphead (myth of the machine)'s biggest fan! (◡◕⏖◕)ᑐ🝐 ⠁⭒*.✩
 </br>
 </br>[perishallmortals](https://github.com/perishallmortals) is noelle holiday's biggest fan! ( ᴗ͈ˬᴗ͈)ഒ
 </br>
@@ -108,9 +130,15 @@
 </br>
 </br>[pupfies](https://github.com/pupfies) is wifies' biggest fan! (˶◠‿◕˵)
 </br>
+</br>[putmetorestimnotyourstosave](https://github.com/putmetorestimnotyourstosave) is cotton candy icecream's biggest fan! ໒꒰ྀི ˶> ˕ <˶꒱ྀི১
+</br>
 </br>[qnakin](https://github.com/qnakin) is anakin skywalker's biggest fan! (ᵕ— ᴗ —)
 </br>
+</br>[r0wlys](https://github.com/r0wlys) is bucky barnes' biggest fan! -^u^-
+</br>
 </br>[raayyz](https://github.com/raayyz) is ink sans' biggest fan! ,,^w^,,
+</br>
+</br>[raysinet-tea](https://github.com/raysinet-tea) is red (ava)'s biggest fan! (₌ㅇᆽㅇ₌)
 </br>
 </br>[rollordie](https://github.com/rollordie) is chance's biggest fan! (✿ᵔ‿ᵔ)
 </br>
@@ -122,7 +150,11 @@
 </br>
 </br>hi there [terrificorice](https://github.com/terrificorice)! ٩(๑'^'๑)۶
 </br>
+</br>hi there [TheSpoiledRiches](https://github.com/TheSpoiledRiches)! (¬'‸'¬)
+</br>
 </br>[travisrapidd](https://github.com/travisrapidd) is andrew's biggest fan! ( ;^ p ^;)
+</br>
+</br>[uictim](https://github.com/uictim) is the dark lord's biggest fan! (>.<)
 </br>
 </br>[undyingregret](https://github.com/undyingregret) is partynoob's biggest fan! (¬ ‸ ¬)
 </br>
@@ -134,6 +166,14 @@
 </br>
 </br>[Xaplastcore](https://github.com/Xaplastcore) is orion pax's biggest fan! (≧▽≦)
 </br>
+</br>[xoxo1ia](https://github.com/xoxo1ia) is jeff the killer's biggest fan! ཐི ₍^.ˬˬ.^₎ ཋྀ
+</br>
 </br>[yellowdeltarune](https://github.com/yellowdeltarune) is yellow (deltarune)'s biggest fan! (ﾟ皿ﾟ)ｒ┏┳－*
 </br>
 </br>[Yoshida-zawa](https://github.com/Yoshida-zawa) is izuku midoriya's biggest fan! (⸝⸝ᵕᴗᵕ⸝⸝)
+</br>
+</br>[yubelsrevenge](https://github.com.yubelsrevenge) is judai yuki's biggest fan! ᵔ⤙ᵔ
+</br>
+</br>[yuriclown](https://github.com/yuriclown) is unpleasant gradient's biggest fan! ദ്ദി(⎚_⎚)
+</br>
+</br>[zombdisaster](https://github.com/zombdisaster) is tim wright's biggest fan! (,; ⩌ ;,)
