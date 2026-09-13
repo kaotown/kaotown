@@ -98,6 +98,8 @@
 </br>
 </br>[kiwiconiccc](https://github.com/kiwiconiccc) is august stilza's biggest fan! ᕙ(͡°‿ ͡°)ᕗ
 </br>
+</br>[LastSeenDead](https://github.com/LastSeenDead) is itsuka kendo's biggest fan! o((^▽^))o
+</br>
 </br>[lovinglist](https://github.com/lovinglist) is kris dreemurr's biggest fan! ᐡ ᐧ ﻌ ᐧ ᐡ
 </br>
 </br>[MacNCheese0990](https://github.com/MacNCheese0990) is scp 035's biggest fan! ദ്ദി◝ ⩊ ◜.ᐟ
