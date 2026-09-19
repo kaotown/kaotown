@@ -1,11 +1,13 @@
 “(ノ _ <,, ) wowie!! i can't believe you found me! welcome to kaotown
 </br> [nominations](https://kaotown.atabook.org) && [reports](https://rochas313.atabook.org) (✧ω✧) [logs](https://rentry.co/tranq)
-</br> duplicates are allowed but not recommended (. ❛ ᴗ ❛.) last upd: sep 6th 2026
+</br> duplicates are allowed but not recommended (. ❛ ᴗ ❛.) last upd: sep 19th 2026
 </br> ![](https://files.catbox.moe/138sbg.png)
 </br> ![](https://komarev.com/ghpvc/?username=kaotown&color=000000&style=flat-square&label=(^o^))
 </br> <sub> problematic pieces of media (this list is non-exhaustive): hazbin & helluva, dandy's world, pressure, hoyoverse, mandela catalogue</a>
 </br> <sub> all for fun! your kaomoji may be edited slightly because it messes with gh formatting, so sorry</a>
 
+</br>[5orrows](https://github.com/5orrows) is ichigo kurosaki's biggest fan! (  •̀ ᗜ •́  )
+</br>
 </br>[6odheaded](https://github.com/6odheaded) is dave strider's biggest fan! >__>
 </br>
 </br>[777gamblr](https://github.com/777gamblr) is barry (guts and blackpowder)'s biggest fan! (°ロ°) !
@@ -76,6 +78,8 @@
 </br>
 </br>[fukounagirl](https://github.com/fukounagirl) is stomach book's biggest fan! ( ᐡづ ᆺ◝ᐡ)
 </br>
+</br>[Gamblersi](https://github.com/Gamblersi) enjoys the song casino royale and is dog chance's biggest fan! ('⎚⩊⎚')
+</br>
 </br>[Gatita-here](https://github.com/Gatita-here) is grox's biggest fan! (｡•̀ᴗ-)✧
 </br>
 </br>[getjinx3d](https://github.com/getjinx3d) is jinx's biggest fan! ₤ò益óꀣ
@@ -87,6 +91,8 @@
 </br>[Heart0fGold](https://github.com/Heart0fGold) is karl (guts and blackpowder)'s biggest fan! ꉂ(˵˃ ᗜ ˂˵)
 </br>
 </br>[heart-wing](https://github.com/heart-wing) is piri's biggest fan! ⁽⁽ଘ( ˊᵕˋ )ଓ⁾⁾
+</br>
+</br>hi there [hopeIesslydevoted](https://github.com/hopeIesslydevoted)! ヾ(˶ᵔ ᗜ ᵔ˶)
 </br>
 </br>[IHASAFACE-LULZ](https://github.com/IHASAFACE-LULZ) is medkit's biggest fan! ( = ⩊ = )
 </br>
@@ -103,6 +109,8 @@
 </br>[K1R5MM5N](https://github.com/K1R5MM5N) is caitlyn kiramman's biggest fan! (˶˃ᆺ˂˶)
 </br>
 </br>[kiwiconiccc](https://github.com/kiwiconiccc) is august stilza's biggest fan! ദ്ദി◍˃ ᵕ ˂◍)
+</br>
+</br>hi there [LACKADAlSlCAL](https://github.com/LACKADAlSlCAL)! (˵•̀ ︿ •˵)
 </br>
 </br>[LastSeenDead](https://github.com/LastSeenDead) is itsuka kendo's biggest fan! o((^▽^))o
 </br>
@@ -139,6 +147,8 @@
 </br>[perishallmortals](https://github.com/perishallmortals) is noelle holiday's biggest fan! ( ᴗ͈ˬᴗ͈)ഒ
 </br>
 </br>[planetlordd](https://github.com/planetlordd) is planetlord's biggest fan! (≧ ᆺ ≦)
+</br>
+</br>[plsticpup](https://github.com/plsticpup) enjoys the song baby born without bones and is jason todd's biggest fan! ˖ ݁♬⋆.˚𝄞★࿐࿔
 </br>
 </br>[poisonedritual](https://github.com/poisonedritual) is two time's biggest fan! (¬'‸'¬)
 </br>
@@ -180,6 +190,8 @@
 </br>
 </br>[waywardleaves](https://github.com/waywardleaves) is skid's biggest fan! ⊹ ࣪ ˖ ໒꒱
 </br>
+</br>[wikiliusdarling](https://github.com/wikiliusdarling) is wikilius' biggest fan! ꉂ(˵˃ ᗜ ˂˵)
+</br>
 </br>[willythesillybilly](https://github.com/willythesillybilly) is caleb244's biggest fan! ꒰՞ °ᗝ°՞꒱.ᐟ.ᐟ
 </br>
 </br>[wolfcutiee](https://github.com/wolfcutiee) is morty smith's biggest fan! ૮◞ ‸ ◟ ა
@@ -187,6 +199,8 @@
 </br>[Xaplastcore](https://github.com/Xaplastcore) is orion pax's biggest fan! (≧▽≦)
 </br>
 </br>[xoxo1ia](https://github.com/xoxo1ia) is jeff the killer's biggest fan! ཐི ₍^.ˬˬ.^₎ ཋྀ
+</br>
+</br>[yaoiliker](https://github.com/yaoiliker) is stan marsh's biggest fan! “(ノ _ <,, )
 </br>
 </br>[yellowdeltarune](https://github.com/yellowdeltarune) is yellow (deltarune)'s biggest fan! (ﾟ皿ﾟ)ｒ┏┳－*
 </br>
