@@ -1,5 +1,5 @@
 “(ノ _ <,, ) wowie!! i can't believe you found me! welcome to kaotown
-</br> [nominations](https://kaotown.atabook.org) && [reports](https://rochas313.atabook.org) (✧ω✧) [logs](https://rentry.co/tranq)
+</br> [nominations](https://kaotown.atabook.org) && [reports](https://zahhak.atabook.org) (✧ω✧) [logs](https://rentry.co/tranq)
 </br> duplicates are allowed but not recommended (. ❛ ᴗ ❛.) last upd: sep 19th 2026
 </br> ![](https://files.catbox.moe/138sbg.png)
 </br> ![](https://komarev.com/ghpvc/?username=kaotown&color=000000&style=flat-square&label=(^o^))
