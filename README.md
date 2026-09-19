@@ -3,7 +3,7 @@
 </br> duplicates are allowed but not recommended (. ❛ ᴗ ❛.) last upd: sep 19th 2026
 </br> ![](https://files.catbox.moe/138sbg.png)
 </br> ![](https://komarev.com/ghpvc/?username=kaotown&color=000000&style=flat-square&label=(^o^))
-</br> <sub> problematic pieces of media (this list is non-exhaustive): hazbin & helluva, dandy's world, pressure, hoyoverse, mandela catalogue</a>
+</br> <sub> problematic pieces of media (this list is non-exhaustive): hazbin & helluva, dandy's world, pressure, hoyoverse, mandela catalogue, project sekai</a>
 </br> <sub> all for fun! your kaomoji may be edited slightly because it messes with gh formatting, so sorry</a>
 
 </br>[5orrows](https://github.com/5orrows) is ichigo kurosaki's biggest fan! (  •̀ ᗜ •́  )
