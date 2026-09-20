@@ -16,6 +16,8 @@
 </br>
 </br>[astrobarrage](https://github.com/astrobarrage) is fluixon's biggest fan! ◝(ᵔᗜᵔ)◜
 </br>
+</br>[B3RDLY](https://github.com/B3RDLY) is berdly's biggest fan! (◍•ᴗ•◍)
+</br>
 </br>[Blame-John](https://github.com/Blame-John) is brighteyes' biggest fan! ฅ₍^•⩊ •マⳊ
 </br>
 </br>[bigguykoi](https://github.com/bigguykoi) is hanzo shimada's biggest fan! ( ꐦ◜ᴗ◝)
@@ -118,6 +120,8 @@
 </br>
 </br>[lovinglist](https://github.com/lovinglist) is kris dreemurr's biggest fan! ᐡ ᐧ ﻌ ᐧ ᐡ
 </br>
+</br>[lunarpools](https://github.com/lunarpools) is tails' biggest fan! ☆૮꒰•༝ •。꒱ა
+</br>
 </br>[Lynxcified](https://github.com/Lynxcified) is beachcomber's biggest fan! ᜊ( ' ⩊ '𖦹)ᜊ
 </br>
 </br>[MacNCheese0990](https://github.com/MacNCheese0990) is scp 035's biggest fan! ദ്ദി◝ ⩊ ◜.ᐟ
@@ -133,6 +137,8 @@
 </br>hi there [MsCarolynne](https://github.com/MsCarolynne)! ₍₍⚞(..◜ᴗ◝..)⚟⁾⁾
 </br>
 </br>hi there [mutiIator](https://github.com/mutiIator)! (,; ⩌ ;,)
+</br>
+</br>[naturalharmoniaa](https://github.com/naturalharmoniaa) enjoys the song mope your too late i already died and is natural harmonia gropius' biggest fan! (≧▽≦)
 </br>
 </br>[nadd-nadd](https://github.com/Nadd-nadd) is sigil (nullscape)'s biggest fan! (^^)
 </br>
@@ -187,6 +193,8 @@
 </br>[uictim](https://github.com/uictim) is the dark lord's biggest fan! (>.<)
 </br>
 </br>[undyingregret](https://github.com/undyingregret) is partynoob's biggest fan! (¬ ‸ ¬)
+</br>
+</br>hi there [untitledfate](https://github.com/untitledfate)! ＼(^o^)／
 </br>
 </br>[waywardleaves](https://github.com/waywardleaves) is skid's biggest fan! ⊹ ࣪ ˖ ໒꒱
 </br>
