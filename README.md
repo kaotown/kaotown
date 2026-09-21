@@ -110,7 +110,7 @@
 </br>
 </br>[K1R5MM5N](https://github.com/K1R5MM5N) is caitlyn kiramman's biggest fan! (˶˃ᆺ˂˶)
 </br>
-</br>[kiwiconiccc](https://github.com/kiwiconiccc) is august stilza's biggest fan! ദ്ദി◍˃ ᵕ ˂◍)
+</br>[kiwiconiccc](https://github.com/kiwiconiccc) is sakura haruka's biggest fan! (｡・//ε//・｡)
 </br>
 </br>hi there [LACKADAlSlCAL](https://github.com/LACKADAlSlCAL)! (˵•̀ ︿ •˵)
 </br>
