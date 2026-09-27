@@ -1,6 +1,6 @@
 “(ノ _ <,, ) wowie!! i can't believe you found me! welcome to kaotown
 </br> [nominations](https://kaotown.atabook.org) && [reports](https://zahhak.atabook.org) (✧ω✧) [logs](https://rentry.co/tranq)
-</br> duplicates are allowed but not recommended (. ❛ ᴗ ❛.) last upd: sep 20th 2026
+</br> duplicates are allowed but not recommended (. ❛ ᴗ ❛.) last upd: sep 27th 2026
 </br> ![](https://files.catbox.moe/138sbg.png)
 </br> ![](https://komarev.com/ghpvc/?username=kaotown&color=000000&style=flat-square&label=(^o^))
 </br> <sub> problematic pieces of media (this list is non-exhaustive): hazbin & helluva, dandy's world, pressure, hoyoverse, mandela catalogue, project sekai</a>
@@ -14,7 +14,7 @@
 </br>
 </br>[abbyyzzz](https://github.com/abbyyzzz) is reita toritsuka's biggest fan! （๑ ᷇ 𖥦 ᷆๑)
 </br>
-</br>[Amealdeal(https://github.com/Amealdeal) is yuji itadori's biggest fan! (ˊᗜˋ)
+</br>[Amealdeal](https://github.com/Amealdeal) is yuji itadori's biggest fan! (ˊᗜˋ)
 </br>
 </br>[andreslopper](https://github.com/andreslopper) is akaishi kuroe's biggest fan! (·•᷄_•᷅ )
 </br>
@@ -44,7 +44,7 @@
 </br>
 </br>[centaursTesticIe](https://github.com/centaursTesticIe) is equius zahhak's biggest fan!
 </br>
-</br>[Chemicalshot](https://github.com/Chemicalshot) is spokeishere's biggest fan! (>_<)
+</br>[Chemicalshot](https://github.com/Chemicalshot) is spokeishere's biggest fan! (>u<)
 </br>
 </br>[cherryflavoredfoam](https://github.com/cherryflavoredfoam) is miguel o'hara's mbiggest fan! ᨳ𐔌՞-  _ -"՞𐦯ᜊ
 </br>
