@@ -1,12 +1,14 @@
 “(ノ _ <,, ) wowie!! i can't believe you found me! welcome to kaotown
 </br> [nominations](https://kaotown.atabook.org) && [reports](https://zahhak.atabook.org) (✧ω✧) [logs](https://rentry.co/tranq)
-</br> duplicates are allowed but not recommended (. ❛ ᴗ ❛.) last upd: sep 30th 2026
+</br> duplicates are allowed but not recommended (. ❛ ᴗ ❛.) last upd: oct 8th 2026
 </br> ![](https://files.catbox.moe/138sbg.png)
 </br> ![](https://komarev.com/ghpvc/?username=kaotown&color=000000&style=flat-square&label=(^o^))
 </br> <sub> problematic pieces of media (this list is non-exhaustive): hazbin & helluva, dandy's world, pressure, hoyoverse, mandela catalogue, project sekai</a>
 </br> <sub> all for fun! your kaomoji may be edited slightly because it messes with gh formatting, so sorry</a>
 
 </br>[5orrows](https://github.com/5orrows) is ichigo kurosaki's biggest fan! (  •̀ ᗜ •́  )
+</br>
+</br>[6odheaded](https://github.com/6odheaded) is dave strider's biggest fan! >__>
 </br>
 </br>[777gamblr](https://github.com/777gamblr) is barry (guts and blackpowder)'s biggest fan! (°ロ°) !
 </br>
@@ -35,6 +37,8 @@
 </br>[burningsins](https://github.com/burningsins) is keigo takami's biggest fan! ꉂ (≧ヮ≦)
 </br>
 </br>[c-utesy](https://github.com/c-utesy) is devin wolf's biggest fan! ( ^ω^ )
+</br>
+</br>[calemholic](https://github.com/calemholic) is calem's biggest fan! ( ◜‿◝ )
 </br>
 </br>[call-me-ZLP](https://github.com/call-me-ZLP) is facty boys's biggest fan! (｡･ω･｡)ﾉ♡
 </br>
@@ -108,6 +112,8 @@
 </br>
 </br>[getjinx3d](https://github.com/getjinx3d) is jinx's biggest fan! ₤ò益óꀣ
 </br>
+</br>[ghostly-sorrows](https://github.com/ghostly-sorrows) is amo empool's biggest fan! ( ;' - ';)
+</br>
 </br>[H0RR0RF4RT](https://github.com/H0RR0RF4RT) is martian (fact attack adventures)'s biggest fan! (◣_◢)
 </br>
 </br>[Ham-milton](https://github.com/Ham-milton) is scared french soldier (guts and blackpowder)'s biggest fan! ('ᗜ')
@@ -115,6 +121,8 @@
 </br>[Heart0fGold](https://github.com/Heart0fGold) is karl (guts and blackpowder)'s biggest fan! ꉂ(˵˃ ᗜ ˂˵)
 </br>
 </br>[heart-wing](https://github.com/heart-wing) is piri's biggest fan! ⁽⁽ଘ( ˊᵕˋ )ଓ⁾⁾
+</br>
+</br>[holl0wpvrple](https://github.com/holl0wpvrple) is satoru gojo's biggest fan! ദ്ദി◝ ⩊ ◜)
 </br>
 </br>hi there [hopeIesslydevoted](https://github.com/hopeIesslydevoted)! ヾ(˶ᵔ ᗜ ᵔ˶)
 </br>
@@ -216,7 +224,7 @@
 </br>
 </br>[star-employee](https://github.com/star-employee) is croissant cookie's biggest fan! (' ε ' )♡
 </br>
-</br>[stridrr](https://github.com/6odheaded) is dave strider's biggest fan! >__>
+</br>[steampunkitty](https://github.com/steampunkitty) is john egbert's biggest fan! ( ◜‿◝ ). ♡
 </br>
 </br>[suncolored](https://github.com/suncolored) is kasumi miwa's biggest fan! ꉂ(// ᗜ ˂˵)
 </br>
@@ -243,6 +251,8 @@
 </br>[undyingregret](https://github.com/undyingregret) is partynoob's biggest fan! (¬ ‸ ¬)
 </br>
 </br>[untitledfate](https://github.com/untitledfate) is princezam's biggest fan! ＼(^o^)／
+</br>
+</br>[verstaqqen](https://github.com/verstaqqen) is max verstappen's biggest fan! ૮₍ › ˕ ‹ ₎ა
 </br>
 </br>[waywardleaves](https://github.com/waywardleaves) is skid's biggest fan! ⊹ ࣪ ˖ ໒꒱
 </br>
