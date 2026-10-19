@@ -1,6 +1,7 @@
 “(ノ _ <,, ) wowie!! i can't believe you found me! welcome to kaotown
 </br> [nominations](https://kaotown.atabook.org) && [reports](https://zahhak.atabook.org) (✧ω✧) [logs](https://rentry.co/tranq)
 </br> duplicates are allowed but not recommended (. ❛ ᴗ ❛.) last upd: oct 8th 2026
+</br> currently on hiatus, but feel free to keep sending things in ヽ(≧◡≦)八(o^ ^o)ノ
 </br> ![](https://files.catbox.moe/138sbg.png)
 </br> ![](https://komarev.com/ghpvc/?username=kaotown&color=000000&style=flat-square&label=(^o^))
 </br> <sub> problematic pieces of media (this list is non-exhaustive): hazbin & helluva, dandy's world, pressure, hoyoverse, mandela catalogue, project sekai</a>
